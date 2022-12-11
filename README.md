@@ -169,3 +169,57 @@ Into an ice-filled shaker, put:
 Shake until very cold. Strain into ice-filled highball glass. Garnish with a lime wedge and cherry stuck onto a pick. 
 
 ___
+
+### Sidecar
+A classic cockatil from the days of the flappers 
+
+Into an ince-filled shaker, put:
+
+2 oz Cognac
+1 oz Cointreau
+1 ox Lemon Juice
+
+
+Rim a cocktail glass with sugar. Shake until very cold then strain into glass. Garnish with lemon peel
+
+tips: The cherry doesn't go onto a pick, so don't choke
+
+
+___
+
+### Bramble
+A new cocktail that has 
+
+Into an ince-filled shaker, put:
+
+2 oz Gin
+3/4 oz Lemon Juice
+3/4 oz Sugar Syrup
+
+Shake until very cold then strain into a tumbler. Top tumber off with ice then add:
+
+1.5 oz Creme de Mure 
+
+to the top as a float.
+
+tips: Try to add the creme de mure to the edges to get a cool effect
+
+
+### Jungle Bird
+My favorite tropical drink
+
+Into an ince-filled shaker, put:
+
+1.5 oz Dark Rum (pref. Gosling's overproof)
+1.5 oz Pineapple Juice
+3/4 oz. Campari
+3/4 oz. Lime Juice
+3/4 oz. Simple Syrup
+
+
+Shake until very cold then strain into cocktail glass. Garnish with pineapple wedges and leaves
+
+tips: Boozier than you first realize. Be careful
+
+
+___
