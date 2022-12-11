@@ -71,7 +71,7 @@ Shake vigorously until the shaker is very cold. Add one egg white and shake agai
 tips: Separate egg white from its yolk into the top of the strainer instead of the bottom with the rest of the ingredients in case you break the yolk. For egg white drinks, a large block of ice gives a creamier mouthfeel than ice cubes. 
 
 ___
-### Old Fashion
+### Old Fashioned
 One of the oldest cocktails. A rite-of-passage for every drinker
 
 Into empty short glass (tumbler, old-fashioned glass, etc), put:
@@ -107,6 +107,41 @@ tips: The cherry doesn't go onto a pick, so don't choke
 
 ___
 
+### Man o' War
+A one-time competitor to the mint julep
+
+Into an ince-filled shaker, put:
+
+2.5 oz. Whiskey (rye or bourbon)
+1 oz. Cointreau
+1/2 oz. Sweeth Vermouth
+1/2 oz. Lemon Juice
+
+Shake until very cold then strain into cocktail glass. Garnish with a marachino cherry and lemon peel
+
+tips: Best when very cold
+
+
+___
+
+### Pink Lady
+This version uses Applejack - an old liquor rarely used.
+
+Into an ince-filled shaker, put:
+
+1 oz. Applejack
+1 oz. Gin
+3/4 oz Grenadine
+3/4 oz Lemon Juice
+
+Shake vigorously until the shaker is very cold. Add one egg white and shake again. Strain into a cocktail glass and garnish with a twist of lemon
+
+tips: 
+
+
+___
+
+
 ### Margarita
 
 
@@ -118,5 +153,19 @@ Into an ice-filled shaker, put:
 Dash of simple syrup
 
 Shake until very cold. Strain into ice-filled tumbler or maragita glass. Garnish with a lime wheel. 
+
+___
+
+### Mexican Firing Squad
+An old Mexico City drink from the 30s
+
+Into an ice-filled shaker, put:
+
+1.5 oz Tequila (Blanco)
+3/4 oz Grenadine
+3/4 oz Lime Juice
+4 Dashes of Angostura Bitters
+
+Shake until very cold. Strain into ice-filled highball glass. Garnish with a lime wedge and cherry stuck onto a pick. 
 
 ___
