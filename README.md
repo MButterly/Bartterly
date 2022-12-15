@@ -112,7 +112,7 @@ A one-time competitor to the mint julep
 
 Into an ince-filled shaker, put:
 
-2.5 oz. Whiskey (rye or bourbon)
+1.5 oz. Whiskey (rye or bourbon)
 1 oz. Cointreau
 1/2 oz. Sweeth Vermouth
 1/2 oz. Lemon Juice
