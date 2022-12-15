@@ -223,3 +223,22 @@ tips: Boozier than you first realize. Be careful
 
 
 ___
+
+### Creme de Mure
+Blackberry infused wine used in Bramble
+
+Into a bowl, put:
+
+1 cup blackberries
+150 mL medium-body red wine
+
+mash up the berries in the wine until they are well broken up. Cover with a breathable cloth and wait a day two.
+
+When done, into a medium sized saucepan or saucier put:
+
+The wine-berry mixture
+1/3 cup sugar
+1/2 cup gin
+
+Heat until sugar dissolves but do not boil. Cool and put into a glass bottle. Store in fridge
+___
