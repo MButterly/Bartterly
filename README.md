@@ -27,7 +27,7 @@ tips: long lemons twists are best done with a canelle knife
 
 ___
 ### Martini
-The fastest way to get your pre-dinner buzz. For only the most experienced lushes and 
+The fastest way to get your pre-dinner buzz. For only the most experienced lushes and advertising executives.
 
 Pre-chill your martini glass by filling it with ice water while you do the other steps. For the drink, into ice-filled shaker or mixing glass, put:
 
@@ -136,9 +136,6 @@ Into an ince-filled shaker, put:
 
 Shake vigorously until the shaker is very cold. Add one egg white and shake again. Strain into a cocktail glass and garnish with a twist of lemon
 
-tips: 
-
-
 ___
 
 
@@ -153,6 +150,22 @@ Into an ice-filled shaker, put:
 Dash of simple syrup
 
 Shake until very cold. Strain into ice-filled tumbler or maragita glass. Garnish with a lime wheel. 
+
+---
+
+### Paloma
+
+What real Mexicans drink instead of margs
+
+Into an ice-filled shaker, put:
+
+1.5 oz tequila
+2.0 oz grapfruit juice
+0.75 oz lime juice
+0.75 oz sugar syrup
+
+Shake well and strain into an ice-filled collins glass. Top with club soda and sip through a straw
+
 
 ___
 
