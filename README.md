@@ -56,6 +56,7 @@ To an empty shaker, add:
 Muddle the cucumber and mint together to release the greens' flavor into the liquids. Top shaker with ice and shake until very cold. Double-strain into cocktail glasses
 
 ---
+![Gin Rocket](./images/gin_rocket.jpeg)
 ### Gin Rocket
 Like an Eastside, it's a riff off the gin sour including greens
 
